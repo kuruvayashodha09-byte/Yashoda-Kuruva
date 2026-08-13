@@ -1,2 +1,0 @@
-# Yashoda-Kuruva
-.HTML 
